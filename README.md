@@ -8,3 +8,4 @@
   ⠀⠀⠀⠀   ⠀⠀⠀    ⠀⠀ ⠀ ⠀   ⠀<a href="https://discordid.netlify.app/?id=873902369354706945"></i>discord</i></a>  ⠀⠀⠀   ⠀⠀⠀⠀⠀  ⠀⠀⠀   ⠀   ⠀    ⠀⠀<img src="https://64.media.tumblr.com/c5dc223aa4fdfd88d571082b18ca5905/21317507f7352712-de/s75x75_c1/58408be9bf8c86dfd898dd2e96ee5ddce2c9a3d6.gifv" width:>   ⠀⠀⠀   ⠀⠀⠀   ⠀⠀⠀   ⠀⠀  ⠀⠀⠀   ⠀⠀⠀ ⠀<a href="https://www.tiktok.com/@n1teb0i"></i>tiktok</i></a>
 
 
+WIP!! ^_^
